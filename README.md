@@ -1,5 +1,4 @@
-<p align="center">
-   <img src="https://static.wikia.nocookie.net/houkai-star-rail/images/3/31/Dreamscape_Pass_Sticker_Aventurine.png/revision/latest/thumbnail/width/360/height/360?cb=20240209043710"%7Bwidth=400px height=400px}/>
+
 ㅤ
 <p align="center">
 (っ´ཀ`)っ :: #𝟕𝟕𝟕
