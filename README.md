@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-:: 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒: hsr, identity v, pj sekai, danganronpa, yttd
+:: 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒: hsr, identity v, pj sekai, danganronpa, yttd, alien stage
 
 <p align="center">
 can be rude sometimes but mostly i'm joking so don't take everything to heart 
@@ -23,6 +23,5 @@ can be rude sometimes but mostly i'm joking so don't take everything to heart
 ![tumblr_573dfa41ac4294022b6b28110b272ef1_26c2475f_100](https://github.com/user-attachments/assets/a3336b2b-296c-48bb-8f65-5647206dd2f7)
 ![tumblr_d19e58284a741ff2a8dccadad191bbd3_48fa7d92_100](https://github.com/user-attachments/assets/0d78e12c-f265-4151-ac79-873b38ed9fd8)
 ![tumblr_0fb2ea12f2467ff8ab1df885e985d706_dc339160_100](https://github.com/user-attachments/assets/98695d69-55a4-4364-b2ca-23687f50edc2)
-![tumblr_7fe1027de0eda70befe746703490efe7_d1685067_100](https://github.com/user-attachments/assets/cd044c54-ab17-42ca-b646-bca708cc61cd)
 ![tumblr_960651cd725be742179e69f6f70f0d8f_9661f8ce_100](https://github.com/user-attachments/assets/da334b74-e940-4213-9c9c-9a8365a7635e)
 
