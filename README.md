@@ -1,19 +1,4 @@
 
-ㅤ
-<p align="center">
-(っ´ཀ`)っ :: #𝟕𝟕𝟕
-
-<p align="center">
-︵ ╰ ꜝꜝ 𝐅𝐑𝐀𝐍𝐂𝐈𝐒 / 𝐅𝐑𝐀𝐍 :: 𝐄𝐍𝐓𝐏 𝟕𝐰𝟖 𝐒𝐎/𝐒𝐗 𝐬𝐚𝐧𝐠𝐮𝐢𝐧𝐞-𝐜𝐡𝐨𝐥𝐞𝐫𝐢𝐜 :: 𝟏𝟕.𝟎𝟓 ⸝⸝ ﾒ
-
-
-</p>
-
-<p align="center">
-:: 𝐌𝐀𝐈𝐍 𝐅𝐀𝐍𝐃𝐎𝐌𝐒: hsr, identity v, pj sekai, danganronpa, yttd, alien stage
-
-<p align="center">
-can be rude sometimes but mostly i'm joking so don't take everything to heart 
 
 
 ![tumblr_e658bea23833000e0fc07c016e2d1488_299f80bd_100](https://github.com/user-attachments/assets/0540617c-20e0-4a5c-83b6-c6ac3ab26652)
